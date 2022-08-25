@@ -1,2 +1,2 @@
-# TheGeese
-You will soon see how TheGeese were made! Stay tuned for more.
+# Happy geese
+You will soon see how happy geese were made! Stay tuned for more.
